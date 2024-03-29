@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @newspaperboy001
+- 👀 I’m interested in video games, books, and music!
+- 🌱 I’m currently learning Python.𓆙
+- 💞️ I’m looking to collaborate on anything as long as you can teach me something new.⋆⭒˚.⋆ 
+- 📫 How to reach me- feel free to add me on Instagram ale.x0e just let me know who you are. (𓁹 𓁹) 
+- 😄 Pronouns: he/him ...
+- ⚡ Fun fact: Almost everyone with hemophilia is male.𓀗
